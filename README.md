@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @DenzelDHontanosas
-- 👀 I’m interested in machine programming & web design!!!(neocities pspsps)
+- 👀 I’m interested in spreadsheet encoding & web design!!!(neocities pspsps)
 - 🌱 I’m currently reviewing all of my recent Computer Science lessons ╥﹏╥
 - 💞️ I’m looking forward to collaborate on my peers!
 - 📫 How to reach me: denzelheart.hontanosas@smc.pshs.edu.ph
