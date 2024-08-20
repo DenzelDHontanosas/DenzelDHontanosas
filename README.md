@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @DenzelDHontanosas
 - 👀 I’m interested in spreadsheet encoding & web design!!!(neocities pspsps)
 - 🌱 I’m currently reviewing all of my recent Computer Science lessons ╥﹏╥
-- 💞️ I’m looking forward to collaborate on my peers!
+- 💞️ I’m looking forward to collaborate with my peers!
 - 📫 How to reach me: denzelheart.hontanosas@smc.pshs.edu.ph
 - 😄 Pronouns: Any pronouns
 - ⚡ Fun fact: "WAS THAT THE BITE OF '87!?!?!?! :O"
